@@ -1,4 +1,4 @@
-- 🤚 Hi, I’m Peer Goudsmit @ https://www.rheocube.com
+- 🤚 Hi, I’m Peer Goudsmit @ www.rheocube.com
 - 🎯 I’m interested in hiring tech hero's
 - 👏 I’m currently learning about life
 - 😎 I’m looking to collaborate on careerdevelopment
